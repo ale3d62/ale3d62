@@ -1,4 +1,4 @@
-💻 Computer Engineering working at Bertrandt Technology Spain 💻
+💻 Computer Engineer working at Bertrandt Technology Spain 💻
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/ale3d62)
